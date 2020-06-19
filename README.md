@@ -1,5 +1,4 @@
 # Hello-World
-Just a practice
 
 Hello apocalypse/revolution 2020,
 
